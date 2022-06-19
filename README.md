@@ -2,4 +2,4 @@
 - 👀 I’m interested in anything new and challenging.
 - 🌱 I’m currently learning the fascinating intricacy in the world of coding.
 - 💞️ I’m looking foward to hopefully collaborating on projects in the future.
-- 📫 If you're looking to contact me for any reason I have a discord account that is fully accessible to the public. - Katiee#3398
+- 📫 If you're looking to contact me for any reason I have a discord account that is fully accessible to the public. - 
