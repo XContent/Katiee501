@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Katiee.
+- 👋 Hi, I’m Lotus.
 - 👀 I’m interested in anything new and challenging.
 - 🌱 I’m currently learning the fascinating intricacy in the world of coding.
 - 💞️ I’m looking foward to hopefully collaborating on projects in the future.
